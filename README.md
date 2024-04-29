@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @VoidDev07
+- 👀 I’m interested in: Video game creating
+- 🌱 I’m currently learning: Coding
+- 💞️ I’m looking to collaborate on: Games!
+- 📫 How to reach me: Discord (TouretteKidNamedVoid)
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: I'm Cool!
